@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning: Nothing
 - 💞️ I’m looking to collaborate on: buying a pizza
 - 📫 How to reach me:
-- Discord: Bozzy#5890
+- Discord: bozzy171
