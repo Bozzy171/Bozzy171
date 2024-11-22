@@ -1,6 +1,5 @@
 - 👋 Hi, I’m: Bozzy171
 - 👀 I’m interested in: Code
 - 🌱 I’m currently learning: Nothing
-- 💞️ I’m looking to collaborate on: buying a pizza
 - 📫 How to reach me:
-- Discord: bozzy171
+  - Discord: bozzy171
