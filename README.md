@@ -1,5 +1,7 @@
-- 👋 Hi, I’m: Bozzy171
-- 👀 I’m interested in: Code
-- 🌱 I’m currently learning: Nothing
+- 👋 Yoza, I’m: Bozzy171
+- 👀 I’m interested in: Planes ✈️
+- 🌱 I’m currently learning: How to drink beech
 - 📫 How to reach me:
-  - Discord: bozzy171
+  - Discord: Bozzy171
+  - Twitch: Bozzy171
+  - YouTube: Bozzy
